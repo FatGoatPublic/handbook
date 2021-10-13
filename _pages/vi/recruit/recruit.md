@@ -11,7 +11,7 @@ We incubate, accelerate, and implement ideas that our team create internally.
 
 ## If you want to create technology that solves problems.
 
-Avance Venture Lab is searching for a few **brilliant minds** to join our hunt for impact through technology.
+FatGoat is searching for a few **brilliant minds** to join our hunt for impact through technology.
 
 ## If you are hungry for your footprint in the digital era.
 
